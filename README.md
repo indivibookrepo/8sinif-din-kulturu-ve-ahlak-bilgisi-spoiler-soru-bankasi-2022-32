@@ -1,0 +1,1 @@
+# 8sinif-din-kulturu-ve-ahlak-bilgisi-spoiler-soru-bankasi-2022-32
